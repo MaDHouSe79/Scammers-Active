@@ -1,2 +1,2 @@
 # Scammer-Active
-- RLK-Subscription (Ge add his name other my created scripts, dont give this guy money sause you get scammed)
+- RLK-Subscription (He add his name other my created scripts, don't give this guy money cause you get scammed!!)
