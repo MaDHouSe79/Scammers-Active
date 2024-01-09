@@ -1,2 +1,2 @@
 # Scammer-Active
-- RLK-Subscription (He add his name under my created scripts, don't give this guy money cause you get scammed!!)
+- RLK-Subscription (Update: He now remove all my scripts from his account) Thank you.
